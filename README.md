@@ -8,4 +8,4 @@
 * 깃 허브도 배우고
 * 또 뭘 배우게 될까?
 
-!강아지 그룹https://www.dailysecu.com/news/photo/202104/123449_145665_1147.png
+
